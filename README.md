@@ -17,6 +17,6 @@
 📫 Entre em contato
 📩 Email: jvmazero@example.com
 🔗 LinkedIn: linkedin.com/in/jvmazero
-🔗 Portfólio: SeuPortfólio.com (se tiver um)
+
 
 💡 Sempre aberto a novas oportunidades e colaborações!
